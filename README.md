@@ -1,1 +1,0 @@
-# Leticia-2-B-flashcards
